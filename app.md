@@ -45,7 +45,7 @@
 ---
 
 ### 💳 Payment Info (For Day 2 & 3 Access)
-Fee: ₦10,000 only  
+Fee: ₦5,000 only  
 Make a manual transfer to:
 
 **Account Name:** Mrs Comfort Shaibu  
